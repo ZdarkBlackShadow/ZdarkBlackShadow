@@ -1,5 +1,5 @@
 # 💫 About Me:
-# EN<br>Student at Ynov<br>Search an internship for 2026-2027<br>Cybersecurity enjoyer<br><br># FR<br>Étudiant à Ynov<br>Recherche une alternance pour 2026-2027<br>Cybersecurity enjoyer
+# EN<br>Student at Ynov<br>Search an internship for 2026-2027<br>Cybersecurity enjoyer<br><br>FR<br>Étudiant à Ynov<br>Recherche une alternance pour 2026-2027<br>Cybersecurity enjoyer
 
 
 ## 🌐 Socials:
